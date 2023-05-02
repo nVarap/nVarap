@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @nVarap. I'm a member of Team 3749's electical and software team. I also dabble in a bit of the build department. I'm interested in software, game design, and climate change!
+- 👋 Hi, I’m @nVarap. I'm a member of Team 3749's electical and software team. I also dabble in a bit of the build department. I'm interested in software, game design, artificial intelligence, and climate change!
